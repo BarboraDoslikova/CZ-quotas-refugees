@@ -24,4 +24,4 @@ Foreigners of Syrian origin currently living in the Czech Republic (in 2014) rep
 
 Se my infographic at https://magic.piktochart.com/output/8778065-cz-quotas.
 
-Given these numbers, NO, it is unlikely that the extra people from Syria would flood the country and exploit and influence it as the Czech people worry
+Given these numbers, NO, it is unlikely that the extra people from Syria would flood the country and exploit and influence it as the Czech people worry.
